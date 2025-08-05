@@ -3,7 +3,7 @@
 ㅤㅤ ㅤ ㅤㅤ ㅤ check out [straw](https://hawkmizi.straw.page/)
 
 
-![Yuri, we YES WE love yuri.](https://cdn.discordapp.com/attachments/1282985399051878441/1402197510327500862/Untitled94_20250805155027.png?ex=689309b2&is=6891b832&hm=fe58ac53667e65b0b53f8d6c680b8cc4692583220e5cceef055f9f9809b1480f&)
+![Yuri, we YES WE love yuri.](https://cdn.discordapp.com/attachments/1282985399051878441/1402197510327500862/Untitled94_20250805155027.png?ex=689309b2&is=6891b832&hm=fe58ac53667e65b0b53f8d6c680b8cc4692583220e5cceef055f9f9809b1480f& =250x250)
 
 ㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
