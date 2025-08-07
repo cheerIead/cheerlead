@@ -1,6 +1,10 @@
 ㅤ(¬`‸´¬)ㅤ ㅤ sign [ata](https://centivan.atabook.org/)ㅤ ㅤ ⸝⸝
 
 ㅤㅤ ㅤ ㅤㅤ( ˶°ㅁ°)   ㅤ check out [straw](https://hawkmizi.straw.page/) ㅤ ㅤ ⸝⸝
+ ㅤ
+ ㅤ
+ ㅤ
+<p align="center"> alnst is my life ⸝⸝ mostly in da alnst area >_o </p>
 ㅤㅤ ㅤ ㅤㅤ ㅤ 
 
 
