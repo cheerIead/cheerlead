@@ -1,6 +1,6 @@
 ㅤ(¬`‸´¬)ㅤ ㅤ sign [ata](https://centivan.atabook.org/)ㅤ ㅤ ⸝⸝
 
-ㅤㅤ ㅤ ㅤㅤ( ˶°ㅁ°)   ㅤ check out [straw](https://hawkmizi.straw.page/) ㅤ ㅤ ⸝⸝
+ㅤ
  ㅤ
  ㅤ
  ㅤ
