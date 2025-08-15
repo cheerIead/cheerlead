@@ -2,11 +2,13 @@
 <br/>
 <br/>
 
-![hyu n lara](https://cdn.discordapp.com/attachments/1282985399051878441/1404399070931587102/Screenshot_2025-08-11_5.33.37_PM.png?ex=689b0c0e&is=6899ba8e&hm=f7f7c371fd4f5d5cfee27db8f1f66b1756e50be3b5e8a34b5d1a494007191ab0&) 
-ㅤㅤ ㅤ ㅤㅤ ㅤ 
+<p align="center">
+  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1405888075321839636/Screenshot_2025-08-15_8.01.45_PM.png?ex=68a076cd&is=689f254d&hm=2454c018599824eb08864588b885eec23725eb32f4c7351b6a2e96154ffafe8b&/460/300">
 
+<p align="center">
+  <img width="560" height="400" src="https://cdn.discordapp.com/attachments/1282985399051878441/1405888075086827540/Screenshot_2025-08-15_8.02.30_PM.png?ex=68a076cd&is=689f254d&hm=f55d2e5f1ea3576ca47e6987d35af965bf8308546b83b264dd3cfb4b41b54c5c&/560/400">
 
-
+</p>
 
 
 ㅤ
