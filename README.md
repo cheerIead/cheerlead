@@ -10,8 +10,9 @@
 
 </p>
 
+<br/>
 
-ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmy favsiezㅤㅤㅤㅤㅤㅤ[SPADE ](https://github.com/parasiticrose/)ㅤㅤㅤㅤ♡ㅤㅤㅤ[VIK](https://github.com/hiikaryuu/)ㅤㅤㅤㅤ♡ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
 
 
