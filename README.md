@@ -1,12 +1,5 @@
-
-<br/>
-<br/>
-
 <p align="center">
-  <img width="460" height="300" src="https://cdn.discordapp.com/attachments/1282985399051878441/1405888075321839636/Screenshot_2025-08-15_8.01.45_PM.png?ex=68a076cd&is=689f254d&hm=2454c018599824eb08864588b885eec23725eb32f4c7351b6a2e96154ffafe8b&/460/300">
-
-<p align="center">
-  <img width="560" height="400" src="https://cdn.discordapp.com/attachments/1282985399051878441/1405888075086827540/Screenshot_2025-08-15_8.02.30_PM.png?ex=68a076cd&is=689f254d&hm=f55d2e5f1ea3576ca47e6987d35af965bf8308546b83b264dd3cfb4b41b54c5c&/560/400">
+  <img width="560" height="400" src="https://cdn.discordapp.com/attachments/1282985399051878441/1407614251803213866/Untitled100_20250820143609.png?ex=68a6be6d&is=68a56ced&hm=87a78fd173aeb20a6ff0ee2fbd755cb2a82485386aa13b82422c5f9d547264af&/560/400">
 
 </p>
 
