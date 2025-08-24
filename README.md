@@ -1,7 +1,24 @@
-<p align="center">
-  <img width="460" height="600" src="https://cdn.discordapp.com/attachments/1282985399051878441/1407614251803213866/Untitled100_20250820143609.png?ex=68a6be6d&is=68a56ced&hm=87a78fd173aeb20a6ff0ee2fbd755cb2a82485386aa13b82422c5f9d547264af&/460/300">
+<br/>
 
+ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ sign [ata](https://centivan.atabook.org/)
+
+<br/>
+
+<p align="center">
+  <img width="660" height="800" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941394341908/Untitled103_20250824090904.png?ex=68abb830&is=68aa66b0&hm=4d8c15cf97ed185a14818b40b53c36e3248995eb3641ab416805b3a344382492&/460/300">
+
+<br/>
+
+<br/>
+
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[spade](https://github.com/parasiticrose)ㅤㅤㅤㅤㅤㅤ [vik](https://github.com/ivbanny)ㅤㅤㅤㅤㅤㅤ [vax](https://github.com/yaoirot)ㅤㅤㅤㅤㅤㅤ 
 </p>
+<p align="center">
+  <img width="460" height="600" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941797261312/Untitled102_20250824085555.png?ex=68abb830&is=68aa66b0&hm=efce247b27934d143d7a4a3537c1f77af1af3b1bf394cab7a4e8abc4e8cf0449&/460/300">
+
+# ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ YURI
+
+
 
 <br/>
 
