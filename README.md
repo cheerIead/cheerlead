@@ -17,7 +17,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[spade](https://github.com/parasiticrose)ㅤㅤㅤㅤㅤㅤ [vik](https://github.com/ivbanny)ㅤㅤㅤㅤㅤㅤ [vax](https://github.com/yaoirot)ㅤㅤㅤㅤㅤㅤ 
 </p>
 <p align="center">
-  <img width="460" height="600" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941797261312/Untitled102_20250824085555.png?ex=68abb830&is=68aa66b0&hm=efce247b27934d143d7a4a3537c1f77af1af3b1bf394cab7a4e8abc4e8cf0449&/460/300">
+  <img width="460" height="600" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941797261312/Untitled102_20250824085555.png?ex=68ae5b30&is=68ad09b0&hm=116516e62dd18002ad13a95368e8596dd1df123be1aeb3b966cdd7764d122f93&/460/300">
 
 # ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ YURI
 
