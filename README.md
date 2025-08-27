@@ -1,26 +1,9 @@
 <br/>
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ sign [ata](https://centivan.atabook.org/)
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ sign [straw](https://hawkmizi.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  sign [straw](https://hawkmizi.straw.page)
 
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ _look in laptop or computer_
-
-
-<br/>
-
-<p align="center">
-  <img width="660" height="800" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941394341908/Untitled103_20250824090904.png?ex=68abb830&is=68aa66b0&hm=4d8c15cf97ed185a14818b40b53c36e3248995eb3641ab416805b3a344382492&/460/300">
-
-<br/>
-
-<br/>
-
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[spade](https://github.com/parasiticrose)ㅤㅤㅤㅤㅤㅤ [vik](https://github.com/ivbanny)ㅤㅤㅤㅤㅤㅤ [vax](https://github.com/yaoirot)ㅤㅤㅤㅤㅤㅤ 
-</p>
-<p align="center">
-  <img width="460" height="600" src="https://cdn.discordapp.com/attachments/1282985399051878441/1408981941797261312/Untitled102_20250824085555.png?ex=68ae5b30&is=68ad09b0&hm=116516e62dd18002ad13a95368e8596dd1df123be1aeb3b966cdd7764d122f93&/460/300">
-
-# ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ YURI
+working on this ok? work in progress....
 
 
 
