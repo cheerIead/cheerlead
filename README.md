@@ -5,11 +5,10 @@
 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1411639178424487936/f8b82a9b-90f8-43e1-9622-bfc101c75c8c.jpg?ex=68b562ef&is=68b4116f&hm=17a647d78d4cc98c498ccbff08aa6a00ddf8906524004a4a280c4c2e1c07b365&/560/800" />
+  <img src="https://media.tenor.com/716lCjyaE5AAAAAM/logo-intro.gif" width="700" length="900">
+
 </p>
 ㅤ ㅤ ㅤㅤ ㅤ 
-
-
 
 
 
