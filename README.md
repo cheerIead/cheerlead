@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://media.tenor.com/716lCjyaE5AAAAAM/logo-intro.gif" width="700" length="900">
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1418151603080265780/lv_0_20250918162627.gif?ex=68cd141a&is=68cbc29a&hm=a7e6cb47d341f323a196a0e667855f60ae2400963aa7845527ed0290c3c52166&" width="700" length="900">
 
 </p>
 ㅤ ㅤ ㅤㅤ ㅤ 
