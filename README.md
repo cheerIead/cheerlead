@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1418151603080265780/lv_0_20250918162627.gif?ex=68cd141a&is=68cbc29a&hm=a7e6cb47d341f323a196a0e667855f60ae2400963aa7845527ed0290c3c52166&" width="700" length="900">
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1418157862244585512/Untitled115_20250918164626.png?ex=68cd19ee&is=68cbc86e&hm=ff79a3ab51428589db09afb47b41792cb6d38c240eaaa948a6e9a685f19a184a&" width="60000" length="800">
 
 </p>
 ㅤ ㅤ ㅤㅤ ㅤ 
@@ -22,8 +22,7 @@
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤ ㅤ![get out](https://visitor-badge.laobi.icu/badge?page_id=KISSINGSTRANGERS)
 
-ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ wuhcuh to muh humble abode twin
-
+ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ 
 
 
 
