@@ -11,7 +11,7 @@
 
 
 
-ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤ check out [strawpage](https://hawkmizi.straw.page)
+ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ check out [strawpage](https://hawkmizi.straw.page)
 
 
 
