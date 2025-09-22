@@ -1,3 +1,14 @@
+ㅤㅤ ㅤ sign [ata](https://centivan.atabook.org/)
+
+ㅤㅤ ㅤ ㅤㅤ ㅤ check out [prns.cc](https://pronouns.cc/@korion/)
+
+
+
+ㅤ
+ㅤ ㅤ ㅤㅤ ㅤ 
+
+
+
 
 
 
