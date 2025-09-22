@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1418157862244585512/Untitled115_20250918164626.png?ex=68cd19ee&is=68cbc86e&hm=ff79a3ab51428589db09afb47b41792cb6d38c240eaaa948a6e9a685f19a184a&" width="600" length="800">
+  <img src="https://pbs.twimg.com/media/G1XPVR6XoAEejdZ?format=jpg&name=large" width="600" length="800">
 
 </p>
 ㅤ ㅤ ㅤㅤ ㅤ 
