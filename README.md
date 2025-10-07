@@ -26,10 +26,8 @@
 
 
 
-<p align="center">
-  <img src="https://pbs.twimg.com/media/G1XPVR6XoAEejdZ?format=jpg&name=large" width="500" length="700">
 
-</p>
+
 ㅤ ㅤ ㅤㅤ ㅤ 
 
 
