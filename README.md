@@ -9,24 +9,13 @@
 ㅤㅤㅤ
 ㅤ ㅤ ㅤㅤ ㅤ 
 
-
+<p align="center">
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1435245238321942560/Untitled155_20251104202805.png?ex=690b43ca&is=6909f24a&hm=b6de4aa88e1a75c89bc5c9759e6e66df6a0db3d0601355ea9ba27e1dd67421be&" />
+</p>
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ 
 
- ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true)
-
-
-
-
-
-
-
-
-
-ㅤ ㅤ ㅤㅤ ㅤ 
-
-
-
+ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 
 <br/>
 
