@@ -10,7 +10,7 @@
 ㅤ ㅤ ㅤㅤ ㅤ 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1435245238321942560/Untitled155_20251104202805.png?ex=690b43ca&is=6909f24a&hm=b6de4aa88e1a75c89bc5c9759e6e66df6a0db3d0601355ea9ba27e1dd67421be&" />
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1435245238321942560/Untitled155_20251104202805.png?ex=69132cca&is=6911db4a&hm=dd5bbde50528ce429cb3d3d0a031dcabfb7d9f886ab60b2902ec60d4eb977bd5&" />
 </p>
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ 
